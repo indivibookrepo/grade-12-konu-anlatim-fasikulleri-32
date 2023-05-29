@@ -1,0 +1,1 @@
+# grade-12-konu-anlatim-fasikulleri-32
